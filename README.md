@@ -1,1 +1,1 @@
-https://rishi080.github.io/Basic/
+https://rishi080.github.io/Basic-/
